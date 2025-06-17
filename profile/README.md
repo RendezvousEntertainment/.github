@@ -1,1 +1,1 @@
-Rendevouz Entertainment
+Rendezvous Entertainment
